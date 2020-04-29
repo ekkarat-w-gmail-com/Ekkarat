@@ -1,2 +1,2 @@
 # Ekkarat
-https://ekkarat.com
+https://ekkarat.w.net
